@@ -1,1 +1,1 @@
-ruthlynn omari
+ruthomari lynn
